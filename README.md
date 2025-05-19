@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @XUHO4KA
+- 👋 Hi, i @XUHO4KA
 - ⚡ Fun fact: ...
 i love you
